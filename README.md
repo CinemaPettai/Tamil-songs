@@ -1,2 +1,10 @@
 # Tamil-songs
-Songs are part of Tamil movies always, very few movies get release without songs.
+
+Songs are part of Tamil movies always, very few movies get release without songs. Even in this modern and computer age film makers do not want to change the songs with just a background Music or montage scenes. Tamil film fans over decades they wish to have songs in Tamil movies.  Basically in Tamilnadu music and songs are part of everybody life and for every profession and situation Tamil people have songs. From birth to death Tamil people have songs and to celebrate or to heal people of Tamilnadu use songs and music. Song comprises of Music, lyrics and background score. 
+
+<a href="http://www.cinemapettai.com/category/tamil-songs-lyrics">Tamil Songs Lyrics</a> are basically carnatic music based songs. It will have the basic elements of Sruti (the relative musical pitch), Swaram (the musical sound of a single note), Raāgam (the mode or melodic formula), and Talam (the rhythmic cycles) form the foundation of improvisation and composition in Carnatic Music.  <a href="http://www.cinemapettai.com/category/tamil-songs-lyrics">Lyrics in Tamil Songs</a> mainly follow carnatic music system in this age few music directors follow western music and other world music system to be unique and different from the crowd. But Tamil cinema audience mainly like to hear Carnatic music system. In the late 80’s many film makers introduced Hindi Cinema music directors to compose music for Tamil cinemas and it got hit too but could not stand in long run. It clearly shows Tamil cinema audience irrespective of the country the live they love to her Tamil songs with Carnatic music’s grammar. 
+
+After the social media’s success many Tamil people love to hear songs in YouTube and other music offering websites. Many companies in Chennai and other major districts of Tamilnadu encourages playing songs while they work. In factories, offices and workshops you can hear Tamil songs will be playing either in FM Radio, YouTube, or in MP3 players. 
+
+If songs of the movie are hit producers will get minimum guaranty money from their investment that’s the trend in Tamil cinema.  
+
